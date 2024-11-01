@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Python 
 - 💞️ I’m looking to collaborate on Telegram BOTS
 - 📫 How to reach me: by Telegram
-- 😄 Pronouns: A THALAPATHY FAN
+- 😄 Pronouns: He/His
 - ⚡ Fun fact: I am not know to code 🤣🤣🤣🤣
 -  ⭐,Subscribe my channel on Youtube: 
 <!---
